@@ -1,3 +1,3 @@
 # Portal-do-t-umaczenia
-# frfrf
+# frfrfgg
 Aplikacje internetowe 
